@@ -1,1 +1,1 @@
-# Vityakuzsite.github.io
+# VityaKuz.github.io
